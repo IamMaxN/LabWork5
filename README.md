@@ -23,3 +23,4 @@
 ![image](https://github.com/IamMaxN/LabWork5/assets/146973595/14be642c-e6fe-4807-9bbb-1732fd9c0290)
 ![image](https://github.com/IamMaxN/LabWork5/assets/146973595/7a15cd8e-b41e-4970-b834-15543735b227)
 ![image](https://github.com/IamMaxN/LabWork5/assets/146973595/8a44affe-17de-43b4-a8c6-9c24524fab95)
+![image](https://github.com/IamMaxN/LabWork5/assets/146973595/ef9f73b2-fccc-4cb6-af42-f89bd4c52572)
